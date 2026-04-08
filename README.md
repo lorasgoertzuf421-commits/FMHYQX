@@ -1,6 +1,6 @@
 # FMHY Cleaner GUI 说明
 
-加速网络推荐使用白羊加[🔍](https://baiyangjiasu.com/register?invite=RWqaczzt)
+翻墙/科学上网/冒泡法上网网络推荐使用白羊加[🔍](https://baiyangjiasu.com/register?invite=RWqaczzt)
 
 更多工具及教程地址：https://wofacai.pages.dev/
 
